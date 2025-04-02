@@ -1,2 +1,2 @@
 # Ethics-Project
-We are going to cock the codes here. 
+We are going to cookthe codes here. 
